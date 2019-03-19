@@ -1,6 +1,6 @@
 <h1><strong>DỰ ÁN GOLDEN STAR RIVERSIDE ĐỨC HOÀ LONG AN</strong></h1>
 <p><em><strong><a href="https://namtrungland.com/du-an-golden-star-riverside-duc-hoa-long-an/">Dự án Golden Star Riverside</a> toạ lạc tại Huyện Đức Hoà, Long An nơi đang có sự đầu tư mạnh mẽ về hạ tầng giao thông và có vị trí giáp ranh với TP. HCM. Nhiều tiện ích hiện hữu bao quanh khu vực tạo một không gian sống hoàn hảo cho cư dân nơi đây. Hứa hẹn sẽ mang lại cho khách hàng một cuộc sống “ An cư – Lạc Nghiệp”.</strong></em></p>
-<p><em><strong>Đại diện chủ đầu tư Nam Phong - xin trân trọng giới thiệu đến quý khách hàng dự án golden star riverside "Hiếm có , Khó Tìm" tại Huyện Đức Hoà, <a href="https://vi.wikipedia.org/wiki/Long_An">Tỉnh Long An</a>. </strong></em></p>
+<p><em><strong>Đại diện chủ đầu tư Nam Phong - xin trân trọng giới thiệu đến quý khách hàng dự án golden star riverside "Hiếm có , Khó Tìm" tại Huyện Đức Hoà.
 	<h2><strong>TỔNG QUAN GOLDEN STAR RIVERSIDE</strong></h2>
 <p><strong>Tên dự án</strong>: Khu Dân Cư Golden Star Riverside</p>
 <p><strong>Vị trí</strong>:  Tỉnh Lộ 824, Huyện Đức Hoà, Tỉnh Long An.</p>
